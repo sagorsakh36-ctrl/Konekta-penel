@@ -1,1 +1,0 @@
-# Konekta-penel
